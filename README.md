@@ -1,2 +1,0 @@
-# Smoking-Gz-Sd
-Thoughts
